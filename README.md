@@ -1,0 +1,1 @@
+# DontFlatterYourselfWeillCornell_IWouldHaveChosenSoManyOtherSchoolsIfIHadOffers_IfIHadABetterGPA
